@@ -1,3 +1,1 @@
-![cruise-logo](https://github.com/Team-Cruze/.github/assets/128358820/7b88c477-dac2-4c5a-a3e6-383a17d839c3)
-
- 
+![크루즈](https://github.com/user-attachments/assets/b64d1ba3-f5c9-4bc3-83d2-a11d04e51be6)
